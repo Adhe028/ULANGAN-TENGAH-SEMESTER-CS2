@@ -1,0 +1,2 @@
+# ULANGAN-TENGAH-SEMESTER-CS2
+Nama : Ade kurniawan, Kelas : 4C, NIM : 18090088
